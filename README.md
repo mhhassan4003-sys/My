@@ -21,7 +21,7 @@ Motivated and responsible veterinary medicine student with a background in anima
 ### Bada Heritage Secondary School
 Secondary education | 2011–2017
 
-### Katu’s Primary School
+### Katuzu Primary School
 Primary education | 2005–2011
 
 ## National Service
@@ -29,18 +29,20 @@ Primary education | 2005–2011
 **National Youth Service Corps (NYSC)**  
 Completed in 2024
 
-> The NYSC start year needs confirmation: you mentioned “2000,” which may be a typo.
-
 ## Leadership Experience
 
 - President, Department of Animal Health and Production | 2022
-- Deputy Senate President, Yobe State College of Agriculture, Science and Technology
+- Deputy Senate President, Yobe State College of Agriculture, Science and Technology,
+- Secretary General, Muslim Student Society of Nigeria (MSSN)
+- Secretary General Bade Emirate Student Association (BESA) YOCASTG Chapter
+- chairman Class rep forum YOCASTG Chapter 2022
 
 ## Certificates and Recognition
 
 - Peace Ambassador
 - Youth Initiative and War Against Terrorism certificate
-
+- IT Essential
+- Microsoft digital skills 
 ## Personal Strengths
 
 - Leadership and teamwork
